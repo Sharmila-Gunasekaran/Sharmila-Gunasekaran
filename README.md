@@ -12,7 +12,7 @@ I believe in the power of learning together. If you're interested in forming a s
 - 📫 How to Reach Me:
 If any of the collaboration opportunities above align with your interests, feel free to get in touch. You can reach me through the following channels:
 
-- GitHub: (https://github.com/sharmila-gunasekaran)
+- GitHub: (https://github.com/Sharmila-Gunasekaran)
 - Email: sharmilaguna27@gmail.com
 - LinkedIn: www.linkedin.com/in/sharmila-gunasekaran-4a66701b5
 
